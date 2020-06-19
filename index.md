@@ -7,3 +7,6 @@ An der Seite von Stephan Remmler und Kralle Krawinkel war Peter Behrens als Schl
 * rote Schuhe
 * T-Shirt
 * rote Hosenträger
+
+Peter:
+> Ich sollte der stille Typ am Schlagzeug sein und ansonsten die Fresse halten. Was ich dann auch getan habe.
